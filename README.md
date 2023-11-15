@@ -1,1 +1,1 @@
-# TC2Ispit2
+# TC2Ispit2 - priprema
